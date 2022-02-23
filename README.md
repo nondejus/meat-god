@@ -1,2 +1,0 @@
-# hulk-hogan-church
-vatican
